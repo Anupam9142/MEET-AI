@@ -1,1 +1,1 @@
-# Meet-AI
+# MEET-AI
